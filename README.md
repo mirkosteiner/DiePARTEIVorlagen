@@ -1,1 +1,1 @@
-# DiePARTEIVorlagen
+# Die VORLAGEN
